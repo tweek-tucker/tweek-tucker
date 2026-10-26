@@ -1,5 +1,7 @@
 
 are you fucking kidding me
 
-https://github.com/user-attachments/assets/078881d4-f2a3-4a55-b881-38b9e01b32b5
+
+https://github.com/user-attachments/assets/96f43469-2aab-4642-9d62-e1bd9b095c3a
+
 
