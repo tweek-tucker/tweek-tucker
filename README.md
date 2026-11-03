@@ -3,7 +3,7 @@
 <img width="26" height="21" alt="tumblr_30c6c5bbc6d442a29b7a273fd71a6725_8ca0382b_75" src="https://github.com/user-attachments/assets/6695b1a2-d171-4dcd-aa52-3852ef3bb4f9" />
 haii welcome to my github 👀 <img width="26" height="21" alt="tumblr_f8cf28800ce21a421bea776dc976e24b_4a6ce5ff_75" src="https://github.com/user-attachments/assets/8cf7a74a-89fc-4162-b4bf-04e6693eeb04" />
 
-pt biggest southpark fan
+southpark fan , fandom int
 
 [watch it here](https://www.southparkstudios.com/)<img width="20" height="20" alt="tumblr_37fbd66bb5ba6cb4af7c044be8fe431c_061b97b9_75" src="https://github.com/user-attachments/assets/d62b7902-82bd-4047-9717-d0c0ef617181" />
 [archive resources](https://mountaintown.neocities.org/parchive)
