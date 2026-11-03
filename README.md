@@ -7,7 +7,7 @@ pt biggest southpark fan
 
 [watch it here](https://www.southparkstudios.com/)
 
-<img width="69" height="3<img 
+<img width="69" height="36<img 
 6" alt="d9mj7wt-56d2b89f-5b6b-4a4a-ba75-e52e0a30553f" src="https://github.com/user-attachments/assets/87f662d1-a5b9-4a33-b3d3-7eafd959153f" />
 
 <img width="69" height="36" alt="creek7" src="https://github.com/user-attachments/assets/9d6c17ee-6b2f-45ef-8ca4-1cfb39cc45ab" />
