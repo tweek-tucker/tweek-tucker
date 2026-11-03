@@ -23,7 +23,8 @@ https://github.com/user-attachments/assets/b15c3219-d491-4ca1-b232-b53a2a8bf0c7
 
 
 <details>
-<summary> collection  </summary>
+<summary> collection <img width="20" height="20" alt="tumblr_166bdc2ef1b5f6ac5a8211331a31e83f_e9b13870_75" src="https://github.com/user-attachments/assets/1b70eb34-0804-4a2e-85a9-52726ba6cf3b" />
+  </summary>
  
 https://github.com/user-attachments/assets/551eb523-b007-4e8f-8b5f-00e7517a9989
 
